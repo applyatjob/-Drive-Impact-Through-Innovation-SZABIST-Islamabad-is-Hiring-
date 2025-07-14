@@ -7,7 +7,9 @@ In this role, you’ll be responsible for connecting the university with leading
 **Key Highlights:**
 
 **Position:** Manager Industrial Liaison
+
 **Location:** SZABIST, Islamabad
+
 **Application Platform:** ApplyatJob.com
 
 This is a great opportunity for individuals who want to lead in a university setting and help bridge the gap between academia and industry.
